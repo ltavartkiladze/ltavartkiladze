@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ltavartkiladze
+- 👋 Hi, I’m Levan
 - 👀 I’m interested in Flying
 - 🌱 I’m currently learning to Fly
 - 💞️ I’m looking to collaborate on ...
